@@ -37,4 +37,14 @@ i tried so hard and got so far
 but in the end, it doesn't even matter
 i had to fall, to lose it all
 but in the end, it doesn't even matter
+
+one thing, i dont know why
+it doesnt even matter how hard you try
+keep that in mind, i designed this rhyme to remind myself
+how i tried so hard
+in spite of the way you were mocking me
+acting like i was part of your propery 
+remembering all the times you fought with me
+
+im surprised it got so far
 */
